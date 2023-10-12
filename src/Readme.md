@@ -1,0 +1,1 @@
+![Heat  5.png](..%2F..%2F..%2F..%2FDownloads%2FHeat%20%205.png)
